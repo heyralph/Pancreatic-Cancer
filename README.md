@@ -1,2 +1,2 @@
-# Pancreatic-Cancer-Warriors
-Article on Pancreatic Cancer - Victims &amp; Survivors
+# Pancreatic-Cancer
+Article on Pancreatic Cancer - causes and types
